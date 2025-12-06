@@ -1,1 +1,0 @@
-# MENTAL-NAHID-HOT
